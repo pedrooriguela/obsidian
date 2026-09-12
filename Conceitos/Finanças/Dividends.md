@@ -1,0 +1,1 @@
+Divisão dos lucros aos acionistas
